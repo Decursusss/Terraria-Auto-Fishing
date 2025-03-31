@@ -18,7 +18,7 @@
 
 * Youtube Channel: https://www.youtube.com/@bastr73
 * Telegram Channel: https://web.telegram.org/k/#@decursuss
-* Link On Video: **
+* Link On Video: https://www.youtube.com/watch?v=qLotwBb7MyA&t=155s&ab_channel=BASTR
 
 # Надо дополнить
 
